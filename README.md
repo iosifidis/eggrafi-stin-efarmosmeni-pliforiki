@@ -200,9 +200,6 @@ password: **d@idem0!**
 * [ΦΕΚ (Αρ. Φύλλου 1965/18-6-2012), αριθμ. Φ5/68535/Β3/18-6-2012, που αφορά την παροχή δωρεάν σίτισης στους φοιτητές των Α.Ε.Ι., για το ακαδημαϊκό έτος 2020-2021](https://www.uom.gr/assets/site/public/nodes/8576/7689-2413-fek-1965-18-06-2012-b.pdf)
 * [ΟΡΙΑ ΕΙΣΟΔΗΜΑΤΟΣ ΔΩΡΕΑΝ ΣΙΤΙΣΗΣ ΑΚΑΔΗΜΑΪΚΟΥ ΕΤΟΥΣ 2020-2021](https://www.uom.gr/assets/site/public/nodes/8576/7776-7704-3886-oria-sitisis-2020-2021.docx)
 
-Η αίτηση θα γίνει [ηλεκτρονικά εδώ](https://docs.google.com/forms/d/e/1FAIpQLSfq4GlkorCeZiOf-XJq7jE2KaVMiHtDsYGU66r_f2mkORiAwQ/viewform)
-
-
 # Στέγαση φοιτητών 2020-2021
 
 Υπάρχει ανακοίνωση [διαθέσιμη εδώ](https://www.uom.gr/8577-anakoinosh-stegash-foithton-akad-etoys-2020-2021).
