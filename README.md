@@ -183,7 +183,7 @@ password: **d@idem0!**
 
 Για όσους θα είναι Θεσσαλονίκη, θα χρειαστείτε και την κάρτα σίτισης. Αρχικά θα βρείτε όλα στην σελίδα του [πανεπιστημίου εδώ](https://www.uom.gr/student-care/sitish).
 
-Έχει βγει ανακοίνωση (δεν φαίνεται στην σελίδα) που μπορείτε να την [βρείτε εδώ](https://www.uom.gr/8576-anakoinosh-sitish-foithton-akad-etoys-2020-2021).
+Έχει βγει [ανακοίνωση](https://www.uom.gr/8883-anakoinosh-sitish-protoeton-foithton-akad-etoys-2020-2021) ενώ σε μια παλιότερη ανακοίνωση θα βρείτε τα έγγραφα που χρειάζεστε ([παλιά ανακοίνωση](https://www.uom.gr/8576-anakoinosh-sitish-foithton-akad-etoys-2020-2021)).
 
 Αυτό που μας ενδιαφέρει είναι η εξής πρόταση:
 
